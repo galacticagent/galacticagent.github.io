@@ -1,1 +1,1 @@
-#vay anam babam
+#ncore 
